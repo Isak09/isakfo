@@ -3,20 +3,4 @@
 
 Hola buenas, soy Isaac :D
 
-
-
-
-MINECRAFT!!!!!
-
-
-
-
-
-
-
-
-
-
-
-
-SHIT!
+Este es el nuevo GitHub!!
